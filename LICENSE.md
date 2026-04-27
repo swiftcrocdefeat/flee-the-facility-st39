@@ -1,4 +1,4 @@
-
+instant break a brainrot egg Script offers the most advanced break a brainrot egg Script, with instant win and auto-heal. Perfect for dominating any
 
 
 
